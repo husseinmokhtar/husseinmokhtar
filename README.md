@@ -1,5 +1,5 @@
 
-<img width="250" align="right" src="https://c.tenor.com/_DOBjnGspYAAAAAM/code-coding.gif">
+<img width="400" align="right" src="https://marketoonist.com/wp-content/uploads/2016/12/161219.predictive.jpg">
 
 <h3 align="center">
   Welcome to Hussein Mokhtar's profile!
